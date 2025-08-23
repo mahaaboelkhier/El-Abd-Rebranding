@@ -61,3 +61,5 @@ Social media post templates and visuals.
 Phase 5 – Documentation & Presentation
 Develop the brand guidelines (brand book).
 Prepare final presentation showcasing the rebranding journey.
+
+https://drive.google.com/drive/folders/1Gmw8IY0u3qoDoGN97U5B9hjLBRvZRxOK?usp=drive_link
