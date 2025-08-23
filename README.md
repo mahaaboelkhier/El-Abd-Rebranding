@@ -6,11 +6,15 @@ This repository contains research, design concepts, brand strategy, visual ident
  
 Team Member :
 
-Maha Abo Elkhier Abd Elstar Mohammad
-Mariam Gehad Fathy Gomaa
-Basmala Mostafa Ahmed Mahrous
-Iten Hossam Ibrahim Saad Eldin
-Marwa Saber Saleh Hassanein
+1-Maha Abo Elkhier Abd Elstar Mohammad
+
+2-Mariam Gehad Fathy Gomaa
+
+3-Basmala Mostafa Ahmed Mahrous
+
+4-Iten Hossam Ibrahim Saad Eldin
+
+5-Marwa Saber Saleh Hassanein
 
 📌 Project Overview
 
