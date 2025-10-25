@@ -1,4 +1,4 @@
-# El-Abd-Rebranding
+# El-Abd branding
 Rebranding project for El Abd .   
 This repository contains research, design concepts, brand strategy, visual identity development and and packaging design.
 
