@@ -78,13 +78,26 @@ Division of roles:
    
                        Salma Ahmad -> Design 4
    
-6. Billboard Posters : Maha Abo Elkhier -> Design 1&2
+4. Billboard Posters :
+
+                       Maha Abo Elkhier -> Design 1&2
+   
                        Iten Hossam -> Design 3
+   
                        Salma Ahmad -> Design 4
-7. Menu Design: Maha Abo Elkhier -> Design 1&2
+   
+5. Menu Design:
+   
+                Maha Abo Elkhier -> Design 1&2
+   
                 Mariam Gehad -> Design 3&4
-8. Packaging Design: Maha Abo Elkhier
-9. Flyers : Basmala Mostafa -> Design 1
+   
+6. Packaging Design: Maha Abo Elkhier
+    
+7. Flyers :
+   
+            Basmala Mostafa -> Design 1
+   
             Marwa Saber -> Design 2
 
 https://drive.google.com/drive/folders/1Gmw8IY0u3qoDoGN97U5B9hjLBRvZRxOK?usp=drive_link
