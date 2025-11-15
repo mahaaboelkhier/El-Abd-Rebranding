@@ -69,11 +69,17 @@ Prepare final presentation showcasing the rebranding journey.
 
 Division of roles:
 1. Logo Design : Maha ِAbo Elkhier
-2. Packaging Design: Maha Abo Elkhier
-3. Character Design: Iten Hossam
-4. Discounts Booklet : Mariam Gehad
-5. Menu Design: Salma Ahmed
-6. Posters & Print Materials: Marwa Saber
-7. Social Media Posts: Basmala Mostafa
+2. Character Design: Maha Abo Elkhier
+3. Social Media Posts: Maha Abo Elkhier -> Design 1&2
+                       Basmala Mostafa -> Design 3&5
+                       Salma Ahmad -> Design 4
+4. Billboard Posters : Maha Abo Elkhier -> Design 1&2
+                       Iten Hossam -> Design 3
+                       Salma Ahmad -> Design 4
+5. Menu Design: Maha Abo Elkhier -> Design 1&2
+                Mariam Gehad -> Design 3&4
+6. Packaging Design: Maha Abo Elkhier
+7. Flyers : Basmala Mostafa -> Design 1
+            Marwa Saber -> Design 2
 
 https://drive.google.com/drive/folders/1Gmw8IY0u3qoDoGN97U5B9hjLBRvZRxOK?usp=drive_link
