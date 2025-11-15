@@ -100,4 +100,6 @@ Division of roles:
    
             Marwa Saber -> Design 2
 
+8. The Presentation : Maha Abo Elkhier
+
 https://drive.google.com/drive/folders/1Gmw8IY0u3qoDoGN97U5B9hjLBRvZRxOK?usp=drive_link
