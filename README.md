@@ -67,39 +67,36 @@ Phase 5 – Documentation & Presentation
 Develop the brand guidelines (brand book).
 Prepare final presentation showcasing the rebranding journey.
 
-Division of roles:
-1. Logo Design : Maha ِAbo Elkhier
-2. Character Design: Maha Abo Elkhier
-3. Social Media Posts:
- 
-                       Maha Abo Elkhier -> Design 1&2
+Every member works:
 
-                       Basmala Mostafa -> Design 3&5
-   
-                       Salma Ahmad -> Design 4
-   
-4. Billboard Posters :
+Maha ِAbo Elkhier : 
+Logo Design
+Character Design
+Social Media Posts -> Designs 1&2
+Billboard Posters -> Designs 1&2
+Menu Design -> Designs 1&2
+Packaging Design
+Mockups
+Project presentation 
 
-                       Maha Abo Elkhier -> Design 1&2
-   
-                       Iten Hossam -> Design 3
-   
-                       Salma Ahmad -> Design 4
-   
-5. Menu Design:
-   
-                Maha Abo Elkhier -> Design 1&2
-   
-                Mariam Gehad -> Design 3&4
-   
-6. Packaging Design: Maha Abo Elkhier
-    
-7. Flyers :
-   
-            Basmala Mostafa -> Design 1
-   
-            Marwa Saber -> Design 2
 
-8. The Presentation : Maha Abo Elkhier
+Basmala Mostafa :
+Social Media posts -> Designs 3&5
+Flyers -> Design 1
+social media posts mockup num 2
+
+salma Ahmad :
+Social Media posts -> Design 4
+Billboard Posters -> Design 4
+
+Mariam Gehad : 
+Menu Design -> Designs 3&4
+
+Iten Hossam : 
+Billboard Posters -> Design 3
+
+Marwa Saber : 
+Flyers  -> Design 2
+
 
 https://drive.google.com/drive/folders/1Gmw8IY0u3qoDoGN97U5B9hjLBRvZRxOK?usp=drive_link
