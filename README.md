@@ -16,11 +16,10 @@ Team Member :
 
 5-Marwa Saber Saleh Hassanein
 
-📌 Project Overview
+Project Overview
 
 El Abd Patisserie is one of the most iconic dessert brands in Egypt, known for its heritage and popularity. This project aims to create a comprehensive rebranding that preserves the brand’s legacy while modernizing its visual identity to appeal to both loyal customers and new generations. The rebranding will cover all touchpoints — from logo and packaging to digital presence — ensuring a cohesive, memorable, and engaging brand experience.
-
-🎯 Project Objectives
+Project Objectives
 
 Modernize the brand image while respecting its heritage and authenticity.
 Develop a distinctive logo that communicates quality, trust, and tradition.
@@ -30,7 +29,7 @@ Establish a full visual identity system (colors, typography, icons, guidelines).
 Design engaging marketing materials such as posters, menus, and social media content to strengthen brand communication.
 Ensure consistency across all brand applications (print, digital, physical).
 
-📦 Project Scope
+Project Scope
 
 The project includes the following deliverables:
 Logo Design: Primary logo, variations, and logo usage guidelines.
@@ -41,7 +40,7 @@ Menu Design: Redesigned menus for in-store and digital use.
 Posters & Print Materials: Advertising, promotions, and campaigns.
 Social Media Posts: Templates, campaign visuals, and digital assets.
 
-🗂️ Project Plan
+Project Plan
 
 Phase 1 – Research & Analysis
 Brand audit (current identity, competitors, target audience).
@@ -68,7 +67,8 @@ Develop the brand guidelines (brand book).
 Prepare final presentation showcasing the rebranding journey.
 Every member works:
 
-📌 Task Distribution
+Every member works 
+
 Maha ِAbo Elkhier :
 Logo Design
 Character Design
