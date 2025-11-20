@@ -71,11 +71,17 @@ Every member works
 
 Maha ِAbo Elkhier : 
 •	Logo Design 
+
 •	Character Design
+
 •	Social Media Posts -> Designs 1&2 
+
 •	Presentation Billboard Posters -> Designs 1&2 
+
 •	Menu Design -> Designs 1&2 
+
 •	Packaging Design 
+
 •	Mockups Project presentation
 
 
