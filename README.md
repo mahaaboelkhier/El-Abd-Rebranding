@@ -69,34 +69,33 @@ Every member works:
 
 Every member works 
 
-Maha ِAbo Elkhier :
-Logo Design
-Character Design
-Social Media Posts -> Designs 1&2
-Presentation
-Billboard Posters -> Designs 1&2
-Menu Design -> Designs 1&2
-Packaging Design
-Mockups
-Project presentation 
+Maha ِAbo Elkhier : 
+•	Logo Design 
+•	Character Design
+•	Social Media Posts -> Designs 1&2 
+•	Presentation Billboard Posters -> Designs 1&2 
+•	Menu Design -> Designs 1&2 
+•	Packaging Design 
+•	Mockups Project presentation
+
 
 Basmala Mostafa :
-Social Media posts -> Designs 3&5
-Flyers -> Design 1
-social media posts mockup num 2
+•	Social Media posts -> Designs 3&5
+•	Flyers -> Design 1
+•	social media posts mockup num 2
 
 salma Ahmad :
-Social Media posts -> Design 4
-Billboard Posters -> Design 4
+•	Social Media posts -> Design 4
+•	Billboard Posters -> Design 4
 
 Mariam Gehad :
-Menu Design -> Designs 3&4
+•	Menu Design -> Designs 3&4
 
 Iten Hossam :
 Billboard Posters -> Design 3
 Flyers -> Design 3
 
 Marwa Saber : 
-Flyers  -> Design 2
+•	Flyers  -> Design 2
 
 https://drive.google.com/drive/folders/1Gmw8IY0u3qoDoGN97U5B9hjLBRvZRxOK?usp=drive_link
