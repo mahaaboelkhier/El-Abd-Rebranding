@@ -94,6 +94,8 @@ Basmala Mostafa :
 
 •	social media posts mockup num 2
 
+•	Booklet
+
 salma Ahmad :
 
 •	Social Media posts -> Design 4
@@ -103,6 +105,8 @@ salma Ahmad :
 Mariam Gehad :
 
 •	Menu Design -> Designs 3&4
+
+•	Booklet
 
 Iten Hossam :
 
